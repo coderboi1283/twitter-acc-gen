@@ -1,0 +1,1 @@
+Hey sorry bro my parents didnt want me to work for anyone else and they are forcing me to block you, I didnt want you to get nothing so I am giving you what I have done so far in hopes you can find another developer who can finish it. Good luck and sorry
